@@ -1,0 +1,2 @@
+# premium-navajo-weaving-001-navajo-style-weaving-southwe
+Tired of generic weaving guides that miss the soul of Navajo design? This studio bridges tradition and modern making, giving you the patterns and techniques to create authentic Southwest textile art—even if you're just starting out.  Most Navajo weaving resources either oversimplify or demand a lifetime of study. This studio solves that by breaking
